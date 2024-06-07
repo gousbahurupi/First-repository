@@ -36,6 +36,6 @@ Here are some of the projects I've worked on:
 
 Feel free to reach out to me:
 
-- Email: [Your email address]
-- LinkedIn: [Your LinkedIn profile URL]
-- Twitter: [Your Twitter handle]
+- Email: gousbahurupi5@gmail.com
+- LinkedIn: (https://linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=gous-bahurupi-28a914266)
+- GitHub: https://github.com/gousbahurupi
