@@ -37,5 +37,6 @@ Here are some of the projects I've worked on:
 Feel free to reach out to me:
 
 - Email: gousbahurupi5@gmail.com
-- LinkedIn: (https://linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=gous-bahurupi-28a914266)
-- GitHub: https://github.com/gousbahurupi
+- LinkedIn: https://linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=gous-bahurupi-28a914266)
+- GitHub: https://github.com/gousbahurup
+- Instagram: https://www.instagram.com/gous_bahurupi?igsh=bmxtemU3eHhlcTB2
